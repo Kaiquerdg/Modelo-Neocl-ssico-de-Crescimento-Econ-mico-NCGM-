@@ -1,0 +1,1 @@
+# Modelo-Neocl-ssico-de-Crescimento-Econ-mico-NCGM-
